@@ -21,4 +21,4 @@ I'm Josiah Promise Kenechukwu.
 
 ## 📫 Connect with Me
 - LinkedIn: https://linkedin.com/in/kenechukwu-josiah-5128a8346
-- Email: your@email.com# Kehne1-
+- Email: pjosiah63@gmail.com
